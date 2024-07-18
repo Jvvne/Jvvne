@@ -1,4 +1,4 @@
-The More I Learn, The More I Know, The More I Know There Is To Learn...
+The More I Learn, The More I Know, The More I Know There Is To Learn..
 2B..
 <!--
 Jvvne/Jvvne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
